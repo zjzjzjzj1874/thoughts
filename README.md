@@ -1,0 +1,2 @@
+# thoughts
+随想
